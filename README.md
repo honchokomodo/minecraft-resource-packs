@@ -1,2 +1,2 @@
 # minecraft-resource-packs
-my packs are here thanks
+i will add the packs later. please be patient i have been busy
